@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fglx350
+- 👀 I’m a fucking retard that don't know how to code
+- 🌱 I would like to learn
+- 💞️ I love myself when im inteligent
+- 📫 Leave me alone and never ping me
